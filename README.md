@@ -1,2 +1,1 @@
-proyectoirtrapetapa..
-este es el proyecto que hemos trabajado desde la segunda unidad y engloba todos mis trabajos comoevidencia
+proyecto final
